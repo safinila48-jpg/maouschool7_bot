@@ -1,0 +1,1 @@
+# maouschool7_bot
